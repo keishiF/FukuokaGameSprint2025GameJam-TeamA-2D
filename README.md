@@ -1,1 +1,1 @@
-# FukuokaGameSprint2025GameJam-TeamA
+# FukuokaGameSprint2025GameJam-TeamA-2D
